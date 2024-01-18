@@ -1,2 +1,1 @@
 # Ilhampratamaa
-Aku suka SKZ
